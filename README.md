@@ -14,4 +14,4 @@ Meu nome é Marjorie Cidreira
 
  @marjorie.cidreira
 
- ![](https://tenor.com/pt-BR/view/risa-gif-9652463622883698378)
+ ![](https://media.tenor.com/hfRwhilc5soAAAAM/risa.gif)
